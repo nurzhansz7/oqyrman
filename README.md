@@ -1,0 +1,2 @@
+# oqyrman
+Stories with translation
